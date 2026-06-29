@@ -1,4 +1,4 @@
-# 
+# Melhor TreeSize predefinições para Mac OS | Profissional TreeSize predefinições para PC Windows. Com varredura profunda e notificacoes de alerta — otimizado para máximo desempenho em cada plataforma.
 
 
 
